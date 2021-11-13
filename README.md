@@ -1,8 +1,8 @@
-Watchopolis
+Time Traveler
 We are offering the best premium and exciting quality watches from most renowned companies. Explore our shop and chose your fashion.
 
 Visit Our Live Site
-A lot of discounts and offers are waiting for you. Visit our website and grab the best watch at best price. Our official website-(https://traveling-hero.web.app/)
+A lot of discounts and offers are waiting for you. Visit our website and grab the best watch at best price. Our official website-(https://time-traveler-online.web.app/)
 
 ### Online Booking
 Get your desired watch online from anywhere anytime.
